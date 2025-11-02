@@ -1,4 +1,4 @@
-# **My favorite series/movie
+# **My favorite series/movie**
 
 ## 1. **the chilling adventures of sabrina**
 - Chilling Adventures of Sabrina is a Netflix supernatural horror series based on the Archie Horror comic book series of the same name. It stars Kiernan Shipka as Sabrina Spellman, a half-witch, half-mortal teen who must navigate her two worlds after her 16th birthday. The show, which aired in four parts between 2018 and 2020, explores themes of horror, the occult, and the conflict between her witch heritage and mortal life. 
